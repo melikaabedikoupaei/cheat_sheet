@@ -1,1 +1,1 @@
-here i would add all of my cheat sheets
+here I would add all of my cheat sheets
